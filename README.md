@@ -1,1 +1,5 @@
 # deepan-31.github.io
+
+#3 rd year BTECH CSE student in AMRITA SCHOOL OF ENGINEERING
+#completed 12th in ST JUDES PUBLIC SCHOOL KOTAGIRI
+#completed 10th in ST JOSEPHS BOYS SCHOOL COONOOR
